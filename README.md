@@ -1,0 +1,76 @@
+# ≠ME – 2時半ろけんろー
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+24時 眠りたいのに
+ドラムンベース 響く
+つま先が 動き出して
+あたしはリズムに酔っちゃって
+(What's your name?)
+みるてん
+(What's your name?)
+しおりんです
+そんなことはええねん
+ほっといて～
+(こうなりゃ)
+朝まで
+(Hang around)
+I see!
+2人が出会えば エキサイティング
+でもって 世界はうちらのもの
+2時半Rock 'n' Roll
+ぼーっとベッドで チルって
+I wonder why
+そういうこっちゃ Rock 'n' Roll
+羊 数えるなんて しょーもないよ
+2時半 Rock 'n' Roll
+誰かあたしを閉ざして
+I'll go crazy!
+そういうこっちゃ Rock 'n' Roll
+あーもう I know 内緒!
+早く眠らせて Yeah
+「Take it easy!!」
+カフェイン ぐいってイッテ
+ギリ Give me 限界 ハイウェイへ
+狂わないテンポが好きよ
+あたしは踊り狂っちゃって
+(今何時?)
+4時デス!
+(今何時?)
+アサナンデス!
+誰か捕まえて
+ショータイム
+(電話は?)
+ナシです
+(返信はどう?)
+Nothing
+言ってくれたよね「Close to you」
+センター問い合わせしよっかなー
+2人はRock 'n' Roll
+今日はこのまま眠らず
+Here's to you
+踊って Rock 'n' Roll
+着いて来れないなんて MOTTAINAI
+2人はRock 'n' Roll
+ところ構わずクラップ
+Come onえびばーりー
+踊って Rock 'n' Roll
+でたらめなんか
+音で飛ばせばいい
+Yeah
+ようこそ 2人のステージ
+どうぞ見て行って
+2時半Rock 'n' Roll
+挙げた右手は下がらぬ
+I wonder why
+そういうこっちゃ Rock 'n' Roll
+羊 数えるなんて しょーもないよ
+2時半 Rock 'n' Roll
+もっと拳振り上げて
+I'll go crazy!
+そういうこっちゃ Rock 'n' Roll
+あーもう I know 内緒!
+また朝が来たよ…
+Yeah
+```
